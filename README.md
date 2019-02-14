@@ -15,7 +15,7 @@ masz w sobie wiarę, więc powiedz mi teraz
 co wytwarza jej zgliszcza, cierpliwość czy herbal 
 równie dobrze to nawinę niż nic 
 nić epickiej opowieści, w dym 
-będę z Tobą dzisiaj znowu śnić
+będę (z Tobą) dzisiaj znowu śnić
 już ja wiem gdzie się skończy ta nić 
 skończy ta nić
 
