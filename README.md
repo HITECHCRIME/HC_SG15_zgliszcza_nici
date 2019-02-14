@@ -1,6 +1,9 @@
 # MOTHNODE_ Zgliszcza Nici (Prod. Retnik)
 Hitech Crime Single 'Zgliszcza Nici'
 
+Actually gonna use https://www.youtube.com/watch?v=40wlZYyxtEA
+Escobar beat for more mood
+
 **Notes**
 Nuke beat
 
