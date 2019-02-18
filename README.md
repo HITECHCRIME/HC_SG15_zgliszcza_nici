@@ -25,3 +25,18 @@ moje nici wyplata, planuje z drutu
 kable na taśmy, dywany w kurzu 
 ekrany na pasmach a brak animuszu
 brak animuszu
+
+brak animuszu sprawa jest prosta
+nie polegaj na suszu, nie zwroci sie w kosztach
+nie polegaj na niczym oddzielnym od ciebie
+ludize nie są dla ciebie
+oni cię zjedzą
+ludzie ostatecznie utną każdą nić - 
+która trzyma cię nad ziemią 
+------------------ cośtam mi
+
+ufaj temu co w tobie oddycha, pasją i ogniem
+ufaj tylko temu co masz w sobie, każdy myśli, lecz nie każda myśl jest płodna
+tysiąc nici to już sieć
+musisz wiedzieć kto cię wesprze
+bez tego nie ma nic
