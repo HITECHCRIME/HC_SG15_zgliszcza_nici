@@ -11,6 +11,7 @@ Techwear squad with me (techarmy), Shanghai parking lot highriser, top of the bu
 
 ---
 
+[CHORUS]
 masz w sobie wiarę, więc powiedz mi teraz 
 co wytwarza jej zgliszcza, cierpliwość czy herbal 
 równie dobrze to nawinę niż nic 
@@ -28,15 +29,26 @@ brak animuszu
 
 brak animuszu sprawa jest prosta
 nie polegaj na suszu, nie zwroci sie w kosztach
-nie polegaj na niczym oddzielnym od ciebie
-ludize nie są dla ciebie
+nie polegaj na niczym oddzielnym od siebie
+ludzie nie są dla ciebie
 oni cię zjedzą
 ludzie ostatecznie utną każdą nić - 
 która trzyma cię nad ziemią 
------------------- cośtam mi
+jeden buch i status: milcz
 
 ufaj temu co w tobie oddycha, pasją i ogniem
-ufaj tylko temu co masz w sobie, każdy myśli, lecz nie każda myśl jest płodna
+ufaj tylko temu co masz w sobie, 
+
+każdy myśli, lecz nie każda myśl jest płodna
 tysiąc nici to już sieć
-musisz wiedzieć kto cię wesprze
+musisz wiedzieć kto cię wesprze do końca
 bez tego nie ma nic
+
+[CHORUS]
+masz w sobie wiarę, więc powiedz mi teraz 
+co wytwarza jej zgliszcza, cierpliwość czy herbal 
+równie dobrze to nawinę niż nic 
+nić epickiej opowieści, w dym 
+będę (z Tobą) dzisiaj znowu śnić
+już ja wiem gdzie się skończy ta nić 
+skończy ta nić
