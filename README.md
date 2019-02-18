@@ -34,10 +34,12 @@ ludzie nie są dla ciebie
 oni cię zjedzą
 ludzie ostatecznie utną każdą nić - 
 która trzyma cię nad ziemią 
-jeden buch i status: milcz / jeden buch mój status milcz
+jeden buch i status: milcz / jeden buch mój status: milcz
 
 ufaj temu co w tobie oddycha, pasją i ogniem
 ufaj tylko temu co masz w sobie, 
+
+
 
 każdy myśli, lecz nie każda myśl jest płodna
 tysiąc nici to już sieć
