@@ -9,6 +9,8 @@ Nuke beat
 
 Techwear squad with me (techarmy), Shanghai parking lot highriser, top of the building - edge of the building photos.
 
+Nici - cierpliwość
+
 ---
 
 [CHORUS]
