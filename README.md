@@ -42,6 +42,7 @@ ufaj tylko temu co masz w sobie 11
 prawdziwa wiara w siebie to rarytas, nic nie powiem
 - niech ten blask nie gaśnie, nie zamykaj powiek
 
+
 każdy myśli, lecz nie każda myśl jest płodna
 tysiąc nici to już sieć bez tego nie ma nic
 musisz wiedzieć kto cię wesprze do samego końca
