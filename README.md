@@ -1,4 +1,4 @@
-# MOTHNODE_ Zgliszcza Nici (Prod. Retnik)
+# MOTHNODE_ Zgliszcza Nici feat. Ganju Rootbwoy (Prod. Retnik)
 Hitech Crime Single 'Zgliszcza Nici'
 
 Actually gonna use https://www.youtube.com/watch?v=40wlZYyxtEA
@@ -42,11 +42,26 @@ ufaj tylko temu co masz w sobie 11
 prawdziwa wiara w siebie to rarytas, nic nie powiem
 - niech ten blask nie gaśnie, nie zamykaj powiek
 
-
 każdy myśli, lecz nie każda myśl jest płodna
 tysiąc nici to już sieć bez tego nie ma nic
 musisz wiedzieć kto cię wesprze do samego końca
 
+[CHORUS]
+masz w sobie wiarę, więc powiedz mi teraz 
+co wytwarza jej zgliszcza, cierpliwość czy herbal 
+równie dobrze to nawinę niż nic 
+nić epickiej opowieści, w dym 
+będę (z Tobą) dzisiaj znowu śnić
+już ja wiem gdzie się skończy ta nić 
+skończy ta nić
+
+[GANJU VERSE]
+Nie wierzę w ludzi nie wierzę w Ciebie 
+Nie wierzę już w nic
+Mogę tylko uwierzyć w siebie i tak niech będzie do ostatnich dni
+Życie to film życie to sen 
+Sam nie wiem już jak jest 
+Ostatni test, festiwal łez i tak po sam kres
 
 [CHORUS]
 masz w sobie wiarę, więc powiedz mi teraz 
