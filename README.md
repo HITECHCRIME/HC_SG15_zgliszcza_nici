@@ -74,7 +74,7 @@ Nie wierzę już w nic
 Mogę tylko uwierzyć w siebie i tak niech będzie do ostatnich dni
 Życie to film życie to sen 
 Sam nie wiem już jak jest 
-Ostatni test, festiwal łez i tak po sam kres
+Ostatni test, festiwal łez i tak po sam kres 
 
 [CHORUS]
 masz w sobie wiarę, więc powiedz mi teraz 
