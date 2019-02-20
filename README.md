@@ -26,12 +26,12 @@ lepsza jest nasza niz brak oparcia
 moje nici wyplata, planuje z drutu 
 kable na taśmy, dywany w kurzu 
 ekrany na pasmach a brak animuszu
-brak animuszu - tak
+brak animuszu - ta
 
 [VERSE]
 brak animuszu sprawa jest prosta
 nie polegaj na suszu, nie zwroci sie w kosztach
-nie polegaj na niczym oddzielnym od siebie
+nie polegaj na niczym oddzielnym od siebie    
 ludzie nie są dla ciebie
 oni cię zjedzą
 ludzie ostatecznie utną każdą nić - 
@@ -41,6 +41,19 @@ halfbeat --- ufaj temu co w tobie oddycha - pasją i ogniem 16
 ufaj tylko temu co masz w sobie 11
 prawdziwa wiara w siebie to rarytas, nic nie powiem
 - niech ten blask nie gaśnie, nie zamykaj powiek
+
+ufaj temu co w tobie oddycha - pasją i ogniem 16
+ufaj tylko temu co masz w sobie 11
+
+ufaj temu co w tobie oddycha - pasją i ogniem 16
+ufaj tylko temu co masz w sobie 11
+
+ufaj temu co w tobie oddycha - pasją i ogniem 16
+ufaj tylko temu co masz w sobie 11
+
+no bo przecież
+
+
 
 każdy myśli, lecz nie każda myśl jest płodna
 tysiąc nici to już sieć bez tego nie ma nic
