@@ -108,7 +108,6 @@ skończy ta nić
 
 --- 
 
-
 każdy myśli, lecz nie każda myśl jest płodna
 tysiąc nici to już sieć bez tego nie ma nic
-musisz wiedzieć kto cię wesprze do samego końca
+musisz wiedzieć kto cię wesprze do samego końca (?)
